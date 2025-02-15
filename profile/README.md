@@ -1,4 +1,5 @@
-Apib7-x98H0j5cPqHWwSMm6dNU4GmODRoqxLiDzdx9I
+<!-- Add at the top of README.md -->
+<meta name="google-site-verification" content="_8hvAqzjCOoDaR8sJW-J21hYStrGCdQoAWT_Q8RshBg" />  
 
 # Unblocked Games 76 👋
 
